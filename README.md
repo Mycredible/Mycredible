@@ -1,5 +1,5 @@
 ### Hi there 👋
-My name is Andy, am so glad to be studying Software Engineering with Alx.
+My name is Andy, hit the subscribe button on my YouTube Channel [New Track mathematics Videos](https://studio.youtube.com/channel/UCKo9qYvg8ELZOXzXEG6Ft6A/) .
 <!--It is a great Opportunity indeed and I so appreciate it!
 **Mycredible/Mycredible** is a ✨ _special_ ✨repository I want to use to tell you guys about myself.
 I am a Website Designer, a blogger, a Youtube Creator, a Digital marketer and I love making friends. 
